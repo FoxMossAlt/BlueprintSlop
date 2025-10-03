@@ -71,3 +71,15 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa![staring-cat-mewing-cat.gif](https://blueprint.hackclub.com/user-attachments/blobs/redirect/eyJfcmFpbHMiOnsiZGF0YSI6MTQzLCJwdXIiOiJibG9iX2lkIn19--a94675861fb2421aac7de4bb7ef41b690e3f0367/staring-cat-mewing-cat.gif)
   
 
+## 10/3/2025 3:53 AM - a  
+
+
+<div class="fixed w-full h-full top-0 left-0 bg-bp-darker p-8 z-\[100\]"> 
+yeah so this is the thing toshit does
+</div>
+
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+
+![staring-cat-mewing-cat.gif](https://blueprint.hackclub.com/user-attachments/blobs/redirect/eyJfcmFpbHMiOnsiZGF0YSI6MTQ0LCJwdXIiOiJibG9iX2lkIn19--55d21941edfa62e441074f9d45cab514a28bafbc/staring-cat-mewing-cat.gif)
+  
+
